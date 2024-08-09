@@ -1,1 +1,1 @@
-# Gameing
+# Gaming
